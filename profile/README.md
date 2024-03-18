@@ -11,7 +11,7 @@ Un groupe de pompiers héroïques de la caserne 19 de Seattle, du capitaine à l
 Regardez en streaming ou téléchargez Station 19 Saison 7 en ligne Full HD (essai gratuit) ici :
 
 📺<br/>
-🌍 🆂🆃🆁🅴🅰🅼 👉   ***[Regarder Station 19 Saison 7 Épisode 1 Série Complet en Français](https://cutt.ly/qw2msp9q)***<br/>
+🌍 🆂🆃🆁🅴🅰🅼 👉   ***[Regarder Station 19 Saison 7 Série Complet en Français](https://cutt.ly/qw2msp9q)***<br/>
 📱<br/>
 
 Titre : Station 19 Saison 7<br/>

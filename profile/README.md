@@ -1,4 +1,4 @@
-# Regarder Station 19 Saison 7 Épisode 1 Série Complet en Français Vostfr VF
+# Regarder Station 19 Saison 7 Série Complet en Français Vostfr VF
 
 ![station-19-saison-7](https://github.com/station-19-saison-7-serie-complete/.github/assets/163599837/daa5ff94-8564-4724-ad16-f02d9cb238f4)
 
